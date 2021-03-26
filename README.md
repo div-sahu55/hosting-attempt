@@ -1,3 +1,0 @@
-Faq page created by Divyansh Sahu
-Work in progress...
-
